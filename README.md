@@ -1,5 +1,4 @@
-[*strawpage*](https://walkingc0rpze-pc.straw.page/) ~ [*prns.page*](https://en.pronouns.page/@veiledsecrets) ~ [*prns.cc*](https://pronouns.cc/@ANTI-HERO.)
+[<kbd>strawpage</kbd>](https://walkingc0rpze-pc.straw.page/) ~ [*𝗉𝗋𝗇𝗌.𝗉𝖺𝗀𝖾*](https://en.pronouns.page/@veiledsecrets) ~ [*𝗉𝗋𝗇𝗌.𝖼𝖼*](https://pronouns.cc/@ANTI-HERO.)
 
+![sonadow 5](https://github.com/user-attachments/assets/40e3dd56-afbd-46f3-92c7-d3940c359947)
 
-![shadow 13](https://github.com/user-attachments/assets/729aab38-e251-4498-a538-84ce7c7017c1)
----
