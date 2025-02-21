@@ -1,5 +1,5 @@
 
-[<kbd>strawpage</kbd>]((https://metallicroses.straw.page/))  [<kbd>prns.page</kbd>](https://en.pronouns.page/@veiledsecrets)  [<kbd>prns.cc</kbd>](https://pronouns.cc/@ANTI-HERO.)
+[<kbd>strawpage</kbd>](https://metallicroses.straw.page/)  [<kbd>prns.page</kbd>](https://en.pronouns.page/@veiledsecrets)  [<kbd>prns.cc</kbd>](https://pronouns.cc/@ANTI-HERO.)
 
 ^ click on those buttons above for socials
 
